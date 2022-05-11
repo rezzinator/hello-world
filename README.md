@@ -1,5 +1,2 @@
 # hello-world
-Where the world waves back.
-
-Well hello there dear friends and compatriots!  I hope you have your sickles and hammers...
-Because we are about to have the best Communist Party this side of the Bolsheviks!
+The elites don't want you to know this but did you know that ducks at the park are free?  You can just take them home; I have 458 ducks.
